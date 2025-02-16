@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @keepwalkingbrad
+- 👋 Hi, I’m Liezl
 - 👀 I’m interested in tech, digital marketing, trading and finance.
 - 🌱 I’m currently learning how to retire before 40.
 - 💞️ I’m looking to collaborate on anything and everything NFT, DeFi, trading and project management stuff.
